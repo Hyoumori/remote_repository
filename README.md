@@ -4,3 +4,5 @@
 fhahahahahahahaahah
 
 hokanohitogaizittayoheyhey
+
+ato 1jikan ganbaro!!!
